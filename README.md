@@ -1,0 +1,1 @@
+# SatuKosversion1.0
